@@ -38,4 +38,6 @@ A roof inspection in El Paso is a habit worth keeping, and the National Roofing 
 
 Learn more: [metal roofs el paso](https://sites.google.com/view/metalroofingelpaso/metal-roofs-el-paso)
 
+Watch the company video: https://www.youtube.com/watch?v=_l-rLjM3nsQ
+
 - [Lifetime Roofing of El Paso](https://www.google.com/maps?cid=18232362718101258317)
